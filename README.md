@@ -9,7 +9,7 @@ Always happy to talk about Java, Spring Boot, Docker, Kafka, and backend system 
 
 Reach me at vickyswar77l@gmail.com
 
-Fun fact: 
+Fun fact about me: 
   - I’m obsessed with anything that has an engine.
     
   - I love clicky switches on my keyboard, yes clicky.
